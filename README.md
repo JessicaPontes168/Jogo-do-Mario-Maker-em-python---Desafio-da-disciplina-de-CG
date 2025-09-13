@@ -44,4 +44,10 @@ Jéssica Pontes Olegário
 
 Estudante de Ciências da Computação - UFC
 
-Apaixonada por tecnologia e desenvolvimento de soluções digitais
+Apaixonada por tecnologia e desenvolvimento de soluções digitais.
+
+<img width="745" height="637" alt="image" src="https://github.com/user-attachments/assets/b1dc5933-7495-4f26-9dab-200a7ffd8190" />
+
+![Imagem do WhatsApp de 2025-09-13 à(s) 17 46 36_91cc2c16](https://github.com/user-attachments/assets/17c580fb-83c1-4c9d-91e6-d3012f907a0f)
+
+
